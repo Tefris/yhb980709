@@ -1,6 +1,6 @@
 <img align="right" src="https://count.getloli.com/get/@:fomalhaut1998?theme=moebooru">
 
-## 一仍在探索钟—Fomalhaut🥝 <img src="https://emojis.slackmojis.com/emojis/images/1588866973/8934/hellokittydance.gif?1588866973" alt="Hi" width="42" /> 
+## —Tefris <img src="https://emojis.slackmojis.com/emojis/images/1588866973/8934/hellokittydance.gif?1588866973" alt="Hi" width="42" /> 
 
 
 ### 自我介绍
